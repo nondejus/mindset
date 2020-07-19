@@ -1,2 +1,0 @@
-# mindset
-anti-depressiva drinkwater
